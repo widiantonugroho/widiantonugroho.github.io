@@ -1,2 +1,2 @@
 # widiantonugroho.github.io
-Widianto Nugrooh
+Widianto Nugroho
